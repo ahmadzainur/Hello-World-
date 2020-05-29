@@ -1,4 +1,4 @@
 # Hello-World
 
-Saya seorang manusia yang sering lupa (TABIAT MANUSAI)
+Saya seorang manusia yang sering lupa (TABIAT MANUSIA)
 BELAJAR TERUSSS.
